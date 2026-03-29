@@ -1,7 +1,5 @@
-### X SECTION
-
+X SECTION
 https://x.com/SuperiorWomen83/status/2018925997719199814
-
 https://x.com/FemmeFeminizer/status/2037625454203404646?s=20
 https://x.com/trappyending/status/2035835908562604322?s=20
 https://x.com/TheChainMelee/status/2037220936127046085?s=20
@@ -13,8 +11,35 @@ https://x.com/goonerpornslut/status/2033454251968790829?s=20
 https://x.com/SwedeTea3/status/2011981139993358485?s=20
 https://x.com/StrawberryGem18/status/1898857243883545060?s=20
 https://x.com/FemmeFeminizer/status/2024219368502984989?s=20
-https://x.com/Sissy\_Wanabee/status/2028400450681086134?s=20
+https://x.com/Sissy_Wanabee/status/2028400450681086134?s=20
 https://x.com/BBCPlxyboi/status/2035638308584190352?s=20
 https://x.com/Lolakitty666/status/2034881211873517930?s=20
+https://x.com/FemmeFeminizer/status/1833439269853004068?s=20
+https://x.com/MommyNora23/status/2038291284364865592?s=20
+https://x.com/FemmeFeminizer/status/1966863185128124458?s=20
+https://x.com/hypnoloopah/status/1882071809958576531?s=20
+https://x.com/paulobruno53a/status/2038088056985518440?s=20
+https://x.com/Mummy_Jessica1/status/2031294433916821805?s=20
+https://x.com/Mommyhelpe13971/status/2011725058641662127?s=20
+https://x.com/TSMOMMY99/status/2021127799730323815?s=20
+https://x.com/mistresstonia4/status/2037983617087897618?s=20
+https://x.com/HypnoCypher/status/1881805251516432404?s=20
+https://x.com/BBCPlxyboi/status/2036981425396703318?s=20
+https://x.com/BBCPlxyboi/status/2028249048352727373?s=20
+https://x.com/paulobruno53a/status/2032241453301199164?s=20
 
-
+HYPNOTUBE SECTION
+https://hypnotube.com/video/you-no-longer-like-girls-18.html
+https://hypnotube.com/video/xchange-star-sissy-caption-story-porn-34761.html
+https://hypnotube.com/video/kinky-amy-steele-hypno-mix-15-125902.html
+https://hypnotube.com/video/sissy-gooner-hypnosis-125893.html
+https://hypnotube.com/video/belly-full-of-cum-125924.html
+https://hypnotube.com/video/let-your-furry-addiction-take-control-125925.html
+https://hypnotube.com/video/jennis-rising-sissy-needs-125910.html
+https://hypnotube.com/video/soft-limp-penis-like-water-forever-super-maid-castle-125826.html
+https://hypnotube.com/video/try-not-to-drop-resistance-play-hypnosis-challenge-125849.html
+https://hypnotube.com/video/sissy-transformation-hypno-vertical-125806.html
+https://hypnotube.com/video/the-ultimate-sissy-chastity-hypnosis-vertical-125712.html
+https://hypnotube.com/video/mindless-drone-hypnosis-125286.html
+https://hypnotube.com/video/what-is-porn-induced-brain-damage-125275.html
+https://hypnotube.com/video/princess-filled-with-love-125136.html
